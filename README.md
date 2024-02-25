@@ -28,4 +28,4 @@ Our quest for innovation is boundless. Anticipating future pathways, we aim to d
 
 ## A Call to Arms in Healthcare Evolution 💪💼
 
-Join us at the forefront of healthcare revolution with AI. Together, let's champion the cause of early detection, transforming it from a mere privilege to a universal standard. Our journey is one of collaboration, innovation, and relentless pursuit of excellence, all in the service of humanity's well-being.
+Join me at the forefront of healthcare revolution with AI. Together, let's champion the cause of early detection, transforming it from a mere privilege to a universal standard. Our journey is one of collaboration, innovation, and relentless pursuit of excellence, all in the service of humanity's well-being.
